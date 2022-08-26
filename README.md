@@ -8,3 +8,6 @@ Grateful that each new day is a chance to do better than the previous.
 
 ### Thurs Aug 25, 2022
 Grateful for all the opportunities I've been given, even if I've failed to actualize them.
+
+### Fri Aug 26, 2022
+Grateful for my courageous spirit to pick myself up after getting knocked down repeatedly.
