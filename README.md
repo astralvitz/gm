@@ -14,3 +14,6 @@ Grateful for my courageous spirit to pick myself up after getting knocked down r
 
 ### Sat, Aug 27, 2022
 Grateful for the knowledge, and my own diligent application, of mindful subconscious reprogramming which after many months has manifested in wonderful ways including running my first 5K today!
+
+### Sun, Aug 28, 2022
+Grateful for all the positive influences in my life, from family and friends to authors and orators to nature and life themselves.
