@@ -17,3 +17,6 @@ Grateful for the knowledge, and my own diligent application, of mindful subconsc
 
 ### Sun, Aug 28, 2022
 Grateful for all the positive influences in my life, from family and friends to authors and orators to nature and life themselves.
+
+### Wed, Sep 7, 2022
+Grateful that every challenge and setback yields new perspectives and optimization data about my mentality, beliefs, abilities and dreams.
