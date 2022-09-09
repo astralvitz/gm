@@ -12,11 +12,14 @@ Grateful for all the opportunities I've been given, even if I've failed to actua
 ### Fri Aug 26, 2022
 Grateful for my courageous spirit to pick myself up after getting knocked down repeatedly.
 
-### Sat, Aug 27, 2022
+### Sat Aug 27, 2022
 Grateful for the knowledge, and my own diligent application, of mindful subconscious reprogramming which after many months has manifested in wonderful ways including running my first 5K today!
 
-### Sun, Aug 28, 2022
+### Sun Aug 28, 2022
 Grateful for all the positive influences in my life, from family and friends to authors and orators to nature and life themselves.
 
-### Wed, Sep 7, 2022
+### Wed Sep 7, 2022
 Grateful that every challenge and setback yields new perspectives and optimization data about my mentality, beliefs, abilities and dreams.
+
+### Thurs Sep 8, 2022
+Grateful for the remarkable beauty of the Full Moon and of all natural things.
