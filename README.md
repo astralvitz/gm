@@ -23,3 +23,9 @@ Grateful that every challenge and setback yields new perspectives and optimizati
 
 ### Thurs Sep 8, 2022
 Grateful for the remarkable beauty of the Full Moon and of all natural things.
+
+### Fri Sep 9, 2022
+Grateful for reciprocated kindness.
+
+### Sat Sep 10, 2022
+Grateful for wonderful conversations with friends and strangers.
