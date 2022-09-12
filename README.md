@@ -29,3 +29,6 @@ Grateful for reciprocated kindness.
 
 ### Sat Sep 10, 2022
 Grateful for wonderful conversations with friends and strangers.
+
+### Sun, Sep 11, 2022
+Grateful for abundance of opportunity - but not all that glitters is gold...
