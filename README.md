@@ -32,3 +32,6 @@ Grateful for wonderful conversations with friends and strangers.
 
 ### Sun, Sep 11, 2022
 Grateful for abundance of opportunity - but not all that glitters is gold...
+
+### Wed, Sep 14, 2022
+Grateful for continued evolution of Self and perceptions of reality.
