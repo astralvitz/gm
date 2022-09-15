@@ -30,8 +30,11 @@ Grateful for reciprocated kindness.
 ### Sat Sep 10, 2022
 Grateful for wonderful conversations with friends and strangers.
 
-### Sun, Sep 11, 2022
+### Sun Sep 11, 2022
 Grateful for abundance of opportunity - but not all that glitters is gold...
 
-### Wed, Sep 14, 2022
+### Wed Sep 14, 2022
 Grateful for continued evolution of Self and perceptions of reality.
+
+### Thurs Sep 15, 2022
+Grateful to see my friends and family healthy, happy and hopeful.
