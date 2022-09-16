@@ -38,3 +38,6 @@ Grateful for continued evolution of Self and perceptions of reality.
 
 ### Thurs Sep 15, 2022
 Grateful to see my friends and family healthy, happy and hopeful.
+
+### Fri Sep 16, 2022
+Grateful for the access to and speed of the internet and its plentiful information on a plethora of topics, and grateful for all the iterative inventions, progress and work over the last decades/centuries to make it all happen, too!
