@@ -41,3 +41,6 @@ Grateful to see my friends and family healthy, happy and hopeful.
 
 ### Fri Sep 16, 2022
 Grateful for the access to and speed of the internet and its plentiful information on a plethora of topics, and grateful for all the iterative inventions, progress and work over the last decades/centuries to make it all happen, too!
+
+### Tues Sep 20, 2022
+Grateful for another day to make better decisions and shape my future with optimistic imagination.
