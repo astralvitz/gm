@@ -44,3 +44,6 @@ Grateful for the access to and speed of the internet and its plentiful informati
 
 ### Tues Sep 20, 2022
 Grateful for another day to make better decisions and shape my future with optimistic imagination.
+
+### Wed Sep 21, 2022
+Grateful for wisdom & meta-cognitive awareness.
