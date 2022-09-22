@@ -47,3 +47,6 @@ Grateful for another day to make better decisions and shape my future with optim
 
 ### Wed Sep 21, 2022
 Grateful for wisdom & meta-cognitive awareness.
+
+### Thurs Sep 22, 2022
+Grateful for my heart, lungs, muscles and whole body for working so well. Running two miles straight consistently now!
