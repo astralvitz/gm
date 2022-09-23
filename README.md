@@ -50,3 +50,6 @@ Grateful for wisdom & meta-cognitive awareness.
 
 ### Thurs Sep 22, 2022
 Grateful for my heart, lungs, muscles and whole body for working so well. Running two miles straight consistently now!
+
+### Fri Sep 23, 2023
+Grateful for the changing seasons despite it restricting my outdoor plans.
